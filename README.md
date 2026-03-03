@@ -1,5 +1,5 @@
 # NWU CMPG214 Infographic
-Hi, my name is Laroné le Roux. I am a second year at the Nort-West Universtity.
+Hi, my name is Laroné le Roux. I am a second year at the North-West Universtity.
 This assignment is all about identity, not on a superficial level, but truly who we are.
 ## The Idea Behind the Logo and Infographic
 I battled skin cancer and bear the scars. I was inspired by the Japanese art 'Kintsugi', where a broken pot is repaired with a mixture containing gold, and its (now) 'imperfections' are celebrated and even admired.
